@@ -12,4 +12,4 @@
 **Suvarna Lakshmi Mereti**  
 🐙 [GitHub](https://github.com/Suvarnamereti) | 
 💼 [LinkedIn](https://www.linkedin.com/in/suvarna-lakshmi-mereti-9313502ba) | 
-📧 suvarnamereti05@gmail.com
+📧 suvarnameriti05@gmail.com
